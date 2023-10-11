@@ -1,5 +1,5 @@
 Hi, I’m @yanzz7
-Ajarin Dong Puh Sepuhhhh
+Ajarin Dong Puh Sepuhhhh, Aku Masih Pemula 👻
 
 <!---
 yanzz7/yanzz7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
